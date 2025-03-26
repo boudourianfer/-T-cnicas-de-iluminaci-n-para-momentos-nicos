@@ -1,1 +1,2 @@
-# -T-cnicas-de-iluminaci-n-para-momentos-nicos
+# -T-cnicas-de-iluminación-para-momentos-nicos
+Una toma puede pasar desapercibida o volverse inolvidable según cómo esté iluminada. Usar luz frontal para destacar rasgos, lateral para generar volumen o rebotada para suavizar sombras transforma escenas comunes en registros memorables. En fotografía de eventos, donde cada instante cuenta, dominar la luz permite captar lo que las palabras no logran decir.
